@@ -17,4 +17,4 @@ av免费网站-0707hm
 
 我们始终坚持“免费、安全、稳定”的原则，不收取任何费用，不要求用户注册，更不会弹出恶意广告。如果你厌倦了低质站点和复杂操作，这里将是你最佳的替代选择。欢迎收藏本站，随时获取最新更新，第一时间观看你最喜爱的日本AV影片。让观看AV变得简单纯粹，就是我们最大的目标。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/nn55236/85403 ）</span>
